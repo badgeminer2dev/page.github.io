@@ -1,2 +1,2 @@
 made by badgeminer
-https://badgeminer.github.io/page.github.io/
+https://badgeminer2dev.github.io/page.github.io/
